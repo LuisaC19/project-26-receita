@@ -1,0 +1,1 @@
+Precisaremos de massa de lasanha, carne moida, creme de leite, manteiga, farinha de trigo, presunto, mussarela,sal, leite, cebola, oleo, molho de tomate, alho e queijo ralado
